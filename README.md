@@ -1,3 +1,3 @@
-- 👋  Hi, I’m @alibrohde
-- 👀  I’m interested in investing in early-stage companies.
-- 📫  How to reach me Twitter, LinkedIn.
+- 👋  Hi, I’m Ali
+- 👀  I invest in pre-seed and seed companies as a partner at Outset Capital
+- 📫  Reach me on LinkedIn, Twitter, email
