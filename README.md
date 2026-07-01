@@ -1,1 +1,1 @@
-I’m Ali Rohde, cofounder and General Partner at Outset Capital, where I back pre-seed and seed companies. Reach me on [LinkedIn](https://www.linkedin.com/in/ali-rohde-90719970/), [Twitter](https://twitter.com/RohdeAli), email.
+I’m Ali, cofounder/GP at Outset Capital. On [LinkedIn](https://www.linkedin.com/in/ali-rohde-90719970/), [Twitter](https://twitter.com/RohdeAli), email.
